@@ -1,2 +1,2 @@
-# Tresure
+# Treasure
 NO GOLD
